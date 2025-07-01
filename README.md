@@ -1,1 +1,0 @@
-mini-project-website to help people when they feel they are depressed
